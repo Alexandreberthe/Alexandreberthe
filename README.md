@@ -9,5 +9,4 @@ Meu nome é Alexandre Berthe
 ### Você pode entrar em contato comigo 📫
 
 alexandre.berthe.silva@escola.pr.gov.br
-
-![](https://tenor.com/pt-BR/view/naruto-gif-19742244)
+![](https://media.tenor.com/HpVRhoeRYaoAAAAd/minecraft.gif)
